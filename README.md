@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Fafiew!
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning Gaming
+- 💞️ I’m looking to collaborate on Gaming
+- 😄 Pronouns: fuck pronouns im a male
+- ⚡ Fun fact: there's only 2 genders the others are ppl being mentally ill
