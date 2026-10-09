@@ -1,5 +1,1 @@
-- 👋 Hi, I’m Fafiew!
-- 👀 I’m interested in Gaming
-- 🌱 I’m currently learning Gaming
-- 😄 Pronouns: male
-- ⚡ Fun fact: There's only 2 Genders the others are ppl being mentally ill
+.
